@@ -18,8 +18,8 @@ https://youtu.be/oHtco_xYDd8
 
 Membros do grupo:
 
-Leonardo Mateus Bortoluzzi Thums
-Pietro Porsch Wilhelms
-Rafael Luan Schmitz
-Rubens Garcia Voivoda 
-Samuel Fernando Bortoluzzi Thums
+Leonardo Mateus Bortoluzzi Thums.
+Pietro Porsch Wilhelms.
+Rafael Luan Schmitz.
+Rubens Garcia Voivoda.
+Samuel Fernando Bortoluzzi Thums.
